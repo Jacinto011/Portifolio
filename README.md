@@ -1,0 +1,1 @@
+Portfólio profissional de Jacinto de Manave Jacinto Patricio, desenvolvedor de software moçambicano. Este website apresenta suas qualificações, habilidades, projetos realizados e informações de contato de forma moderna e interativa.
